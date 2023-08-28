@@ -37,3 +37,7 @@
 #EXP10
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/bc869b7a-05a3-4e5b-8669-a1885457d433)
+
+#EXP12
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/09aecd14-28ad-4d11-96fc-86403e7dc46e)
