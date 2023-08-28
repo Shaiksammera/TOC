@@ -41,3 +41,11 @@
 #EXP12
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/09aecd14-28ad-4d11-96fc-86403e7dc46e)
+
+#EXP13
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/213b07e1-5709-429d-baec-bcc6e1ca77ca)
+
+#EXP14
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/48ffca0e-7d6c-4e49-b1f8-8507318ddcf9)
