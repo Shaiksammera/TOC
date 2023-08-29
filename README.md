@@ -73,3 +73,23 @@
 #EXP20
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/54aeb7a9-d8ab-4884-9ab6-9adfb64b0460)
+
+#EXP21
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/843c7405-f8ae-407c-97d8-d51df8a77e4e)
+
+#EXP22
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/57a51d91-7846-4b3d-929c-9b7fea4be69f)
+
+#EXP23
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/9c7d308b-cae9-486e-94c6-db95c2a22878)
+
+#EXP24
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/7012b37a-e178-45fc-b310-bfdd5dd76cfc)
+
+#EXP25
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/641a2e36-bb27-482f-8b7c-f925e39c96c7)
