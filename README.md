@@ -57,3 +57,19 @@
 #EXP16
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/bba6c1db-2e78-4989-8c72-32d765d95e8e)
+
+#EXP17
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/09758d2b-bdcc-4483-b45c-958c3ef1d4c3)
+
+#EXP18
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/0e89a605-8c51-4e99-80fe-3df078fbe1cc)
+
+#EXP19
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/a9d87578-ecab-490a-92b6-e6619540c538)
+
+#EXP20
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/54aeb7a9-d8ab-4884-9ab6-9adfb64b0460)
