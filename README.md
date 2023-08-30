@@ -68,7 +68,7 @@
 
 #EXP19
 
-![image](https://github.com/Shaiksammera/TOC/assets/112576522/a9d87578-ecab-490a-92b6-e6619540c538)
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/d80ad8d2-263b-46e7-8ae3-14dbcafe2e2e)
 
 #EXP20
 
