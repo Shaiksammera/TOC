@@ -109,3 +109,7 @@
 #EXP39
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/d9265ac1-437d-4dbe-8cca-ad947498a442)
+
+#EXP40
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/50385295-bed7-40b2-8e0a-0be65791733c)
