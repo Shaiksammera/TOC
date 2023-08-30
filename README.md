@@ -106,7 +106,8 @@
 
 #EXP30
 
-![image](https://github.com/Shaiksammera/TOC/assets/112576522/a90e7613-1dd6-41df-91d6-a486f501af1e)
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/c300aa33-f8ea-4b17-894d-4c5caae4a290)
+
 
 #EXP31
 
