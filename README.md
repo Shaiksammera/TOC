@@ -120,6 +120,14 @@
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/4f29f6d7-45cd-4f34-a6e4-360a63cd66b3)
 
+#EXP35
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/026c0568-ee7d-4dff-b6a0-c8dabc86ce5d)
+
+#EXP36
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/fcab774d-cefb-4989-ab08-9b2d5edc8933)
+
 #EXP38
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/bb64f39a-d043-46b0-b9cb-d702a7e2064c)
