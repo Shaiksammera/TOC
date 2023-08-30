@@ -113,6 +113,10 @@
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/e9e8d63e-df18-4161-8612-5f14293fb2a5)
 
+#EXP32
+
+![image](https://github.com/Shaiksammera/TOC/assets/112576522/12895ad0-fcd6-42c3-af6c-5b56e3369c4c)
+
 #EXP33
 
 ![image](https://github.com/Shaiksammera/TOC/assets/112576522/da018ee6-a709-4479-9739-741b68dc816c)
